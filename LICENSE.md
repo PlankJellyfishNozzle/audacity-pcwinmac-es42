@@ -1,4 +1,4 @@
-# 
+# Elite Audacity ferramentas para Mac OS | Automático Audacity ferramentas para PC Windows. Com camadas 3D e biblioteca de efeitos — otimizado para máximo desempenho em cada plataforma.
 
 
 
